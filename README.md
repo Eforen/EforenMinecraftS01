@@ -1,2 +1,2 @@
-# EforenMinecraftS01E02
+# EforenMinecraftS01
 Eforen's Let's Play Challenge 
